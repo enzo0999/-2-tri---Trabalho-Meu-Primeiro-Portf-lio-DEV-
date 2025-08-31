@@ -1,1 +1,0 @@
-# -2-tri---Trabalho-Meu-Primeiro-Portf-lio-DEV-
